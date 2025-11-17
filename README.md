@@ -1,0 +1,1 @@
+# 04-zhaw-scripting-wealth-energy-analysis-zurich
